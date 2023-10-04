@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @syn-antona  
 - 👀 I’m interested in $1M 
-- 🌱 I’m currently learning Spanish 
+- 🌱 I’m currently learning Spanish  
 - 💞️ I’m looking to collaborate on ...   
 - 📫 How to reach me ... 
 
